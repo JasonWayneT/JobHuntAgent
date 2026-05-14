@@ -1,13 +1,13 @@
 # Jason Taylor
 
-San Diego, CA  
-jason.wayne.t@gmail.com  
-760-317-8264  
+San Diego, CA 
+jason.wayne.t@gmail.com 
+760-317-8264 
 
 May 1, 2026
 
-**Hiring Team**  
-Daktronics  
+**Hiring Team** 
+Daktronics 
 
 **RE: Product Manager Application**
 
